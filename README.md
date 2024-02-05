@@ -1,0 +1,5 @@
+ASAJA Almería es una organización agraria que representa y defiende los intereses de los agricultores y ganaderos de la provincia de Almería, España. Fue fundada el 19 de marzo de 1991 y cuenta con 8 oficinas en la provincia para brindar servicios a los profesionales agrícolas y ganaderos. Estos servicios incluyen asesoramiento laboral, fiscal y contable, tramitación de ayudas, formación, prevención de riesgos laborales y seguros agrarios y generales.
+
+La organización se dedica a promover y apoyar el desarrollo de la agricultura y ganadería en la provincia, así como a abordar los desafíos y problemáticas que enfrenta el sector. Entre sus objetivos se encuentran dar a conocer las problemáticas de los diferentes sectores agrícolas, impulsar la organización y mejorar la cualificación de los agricultores a través de programas de formación .
+
+ASAJA Almería también ofrece condiciones favorables y diferentes servicios a sus afiliados. Para afiliarse, es necesario completar los datos de la hoja de afiliación y presentarla en cualquiera de las oficinas de ASAJA.
